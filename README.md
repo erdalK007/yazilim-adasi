@@ -1,1 +1,1 @@
-# yazilim-adasi
+# yazilim-ogreniyorum
